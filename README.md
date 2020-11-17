@@ -1,2 +1,0 @@
-# computerprojectbyavinavchalise
-My computer project
